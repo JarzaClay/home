@@ -1,1 +1,0 @@
-# Welcome to The Jarza Blog! This is where you will find everything related to what I'm doing, and also submit feedback! If you want to do collab, suggest changes to certain things I have created, or just read about what I'm working on, come here!
